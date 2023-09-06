@@ -1,0 +1,2 @@
+# ders.11
+EV TAPSIRIQI
